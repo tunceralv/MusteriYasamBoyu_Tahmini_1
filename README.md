@@ -1,0 +1,1 @@
+# MusteriYasamBoyu_Tahmini_1
